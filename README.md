@@ -1,6 +1,6 @@
 
 
-JC Zhang, BISZ 24
+JC Zhang, ShenZhen
 
 
 
