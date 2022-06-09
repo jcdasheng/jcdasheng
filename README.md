@@ -1,6 +1,4 @@
-
-
-JC Zhang, ShenZhen
+A place to explore place
 
 
 
